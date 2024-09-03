@@ -15,4 +15,6 @@ I like to dabble in coding and have done so on and off for 25 years starting wit
 
 My other interests include history, comedy, linguistics, geography, astronomy, professional wrestling, and board games. If you know what my handle is from, you'll also learn what kind of music I like 😄 My "company name" is an even more obscure reference but there is a clue somewhere on this page 😏
 
+Stinky Games is the name a friend and I use to work on making games and the name comes from my faithful companion, my best bud, and my number one fan, my cat Stinky 😺 (as a cat owner I am legally obligated to talk about my cat).
+
 This website not only aims to showcase the projects I am working on, but also to serve as a repository for my musings, so feel free to check out any of my writings and thanks for dropping by neighborino! ✌️
